@@ -3,3 +3,4 @@ Procesory AMD i Intel to lenie bo nie chce im się szyć kocy i ubrań miłych w
 Oni to reklama gwoździ tesa prowizorka. 
 Mi Post mafia zrobiła fame i każda mnie omija i woli ubrania szmaty. 
 Tom sprzątaczką jest Kali procesor. Co usunoł z głowy te ubrania i dodał oszczędzacze grzałki i wkłady grzałek. To kali zabija na raka krawców. 
+Może oni ci post złodzieje to misie lub inne zwierze czy robot bo są silni. 
